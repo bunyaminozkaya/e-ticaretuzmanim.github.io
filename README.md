@@ -1,1 +1,1 @@
-# e-ticaretuzmanim.github.io
+deneme web site
